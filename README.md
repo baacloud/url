@@ -1,3 +1,3 @@
 # baacloud new url
 
-最新网址:https://www.baacloud62.com
+最新网址:https://www.baacloud64.com
