@@ -1,2 +1,1 @@
-
-# https://www.tly.com
+del
